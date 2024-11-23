@@ -1,2 +1,2 @@
 # my-plan
-for my future plans
+my future plans
